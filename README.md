@@ -1,2 +1,2 @@
 # slipgaji
-masih blm fix
+masih blm fix ini program lama gajelas wtffffffff
